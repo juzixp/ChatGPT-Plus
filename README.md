@@ -20,7 +20,7 @@
 
 **推荐靠谱购买渠道：**
 
-- [https://shop.muooy.com](https://shop.muooy.com)（专注提供稳定的ChatGPT Plus独享账号,以及代充服务）
+- [https://juzixp.com](https://juzixp.com/)（专注提供稳定的ChatGPT Plus独享账号,以及代充服务）
 - ChatGPT Plus代充使用教程：[五、如何使用现有的ChatGPT Plus会员代充平台充值账户？](#%E4%BA%94%E5%A6%82%E4%BD%95%E4%BD%BF%E7%94%A8%E7%8E%B0%E6%9C%89%E7%9A%84chatgpt-plus%E4%BC%9A%E5%91%98%E4%BB%A3%E5%85%85%E5%B9%B3%E5%8F%B0%E5%85%85%E5%80%BC%E8%B4%A6%E6%88%B7) 
 ------
 
